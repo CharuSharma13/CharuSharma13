@@ -1,4 +1,4 @@
-### Hi there <img src='https://cliply.co/wp-content/uploads/2019/06/391906110_WAVING_HAND_400px.gif' height=30 , width=30/>
+### Hi there <img src='https://cliply.co/wp-content/uploads/2019/06/391906110_WAVING_HAND_400px.gif'/ height=30 , width=30>
 
 You are welcome to my world.⚡
 

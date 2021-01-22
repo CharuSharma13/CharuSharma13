@@ -1,10 +1,16 @@
 ### Hi there 👋
 You are welcome to my world.⚡
+
 I am Charu Sharma, I strongly believe in data.😄
+
 I am crazy about coding, problem solving and team collaboration.👯
+
 I like to create, build and making new things, briefly i like discovering new useful things.✨
+
 I also like a social gathering and meeting new people.👯
+
 feel free to get in touch.💬
+
 📫 How to reach me:@<a href="https://www.linkedin.com/in/charu-sharma-5b7958195/">Charu_Sharma</a>
 
 <!--

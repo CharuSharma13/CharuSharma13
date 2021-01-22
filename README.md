@@ -1,4 +1,4 @@
-### Hi there <a href="https://www.animatedimages.org/cat-waving-1645.htm"><img src="https://www.animatedimages.org/data/media/1645/animated-waving-image-0064.gif" border="0" alt="animated-waving-image-0064" /></a>
+### Hi there <a href="https://www.animatedimages.org/cat-waving-1645.htm"><img src="https://www.animatedimages.org/data/media/1645/animated-waving-image-0077.gif" border="0" alt="animated-waving-image-0077" /></a>
 
 You are welcome to my world.⚡
 

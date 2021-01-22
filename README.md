@@ -1,17 +1,17 @@
-### Hi <a href="https://www.animatedimages.org/cat-waving-1645.htm"><img src="https://www.animatedimages.org/data/media/1645/animated-waving-image-0077.gif" border="0" alt="animated-waving-image-0077" /></a> , I am <img src="https://img.icons8.com/color/48/000000/c.png"/><img src="https://img.icons8.com/color/48/000000/s.png"/>
-You are welcome to my world.🏡
+### hi <a href="https://www.animatedimages.org/cat-waving-1645.htm"><img src="https://www.animatedimages.org/data/media/1645/animated-waving-image-0077.gif" border="0" alt="animated-waving-image-0077" /></a> , i am <img src="https://img.icons8.com/color/48/000000/c.png"/><img src="https://img.icons8.com/color/48/000000/s.png"/> who likes emoji and typing in lowercase😄
+you are welcome to my world.🏡
 
-I am Charu Sharma, I strongly believe in data.💜
+i strongly believe in data.💜
 
-I am crazy about coding, problem solving and team collaboration.🌱
+i am crazy about coding, problem solving and team collaboration.🌱
 
-I like to create, build and making new things, briefly i like discovering new useful things.✨
+i like to create, build and making new things, briefly i like discovering new useful things.✨
 
-I also like a social gathering and meeting new people.👯
+i also like a social gathering and meeting new people.👯
 
 feel free to get in touch.💬
 
-📫 How to reach me:@<a href="https://www.linkedin.com/in/charu-sharma-5b7958195/">Charu_Sharma</a>
+📫 how to reach me:@<a href="https://www.linkedin.com/in/charu-sharma-5b7958195/">Charu_Sharma</a>
 
 <!--
 **CharuSharma13/CharuSharma13** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

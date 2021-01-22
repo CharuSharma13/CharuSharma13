@@ -1,5 +1,4 @@
-<img src="https://img.icons8.com/material/24/000000/circled-c.png"/><img src="https://img.icons8.com/material/24/000000/circled-s.png"/>
-### Hi there <a href="https://www.animatedimages.org/cat-waving-1645.htm"><img src="https://www.animatedimages.org/data/media/1645/animated-waving-image-0077.gif" border="0" alt="animated-waving-image-0077" /></a>
+### Hi <a href="https://www.animatedimages.org/cat-waving-1645.htm"><img src="https://www.animatedimages.org/data/media/1645/animated-waving-image-0077.gif" border="0" alt="animated-waving-image-0077" /></a> , I am <img src="https://img.icons8.com/material/24/000000/circled-c.png"/><img src="https://img.icons8.com/material/24/000000/circled-s.png"/>
 
 You are welcome to my world.🏡
 

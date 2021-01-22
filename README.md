@@ -1,10 +1,10 @@
 ### Hi there <a href="https://www.animatedimages.org/cat-waving-1645.htm"><img src="https://www.animatedimages.org/data/media/1645/animated-waving-image-0077.gif" border="0" alt="animated-waving-image-0077" /></a>
 
-You are welcome to my world.⚡
+You are welcome to my world.🏡
 
-I am Charu Sharma, I strongly believe in data.😄
+I am Charu Sharma, I strongly believe in data.💜
 
-I am crazy about coding, problem solving and team collaboration.👯
+I am crazy about coding, problem solving and team collaboration.🌱
 
 I like to create, build and making new things, briefly i like discovering new useful things.✨
 
@@ -27,4 +27,12 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ 👋 Fun fact: ...
+🧠  
+💜  
+👨🏼‍
+🧠 
+💜 
+
+🏡
+🐦 
 -->

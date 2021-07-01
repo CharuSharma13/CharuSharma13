@@ -11,7 +11,7 @@ i also like a social gathering and meeting new people.👯
 
 feel free to get in touch.💬
 
-📫 how to reach me:@<a href="https://www.linkedin.com/in/charu-sharma-5b7958195/">charu_sharma</a>
+
 
 😄 wanna know me:@<a href="https://charusharma.netlify.app/">charu_sharma.com</a>
 <!--

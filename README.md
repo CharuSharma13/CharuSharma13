@@ -13,7 +13,7 @@ feel free to get in touch.💬
 
 
 
-😄 wanna know me:@<a href="https://charusharma.netlify.app/">charu_sharma.com</a>
+😄 wanna know me:@<a href="https://sharmacharu.netlify.app/">charu_sharma.com</a>
 <!--
 **CharuSharma13/CharuSharma13** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

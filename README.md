@@ -1,7 +1,7 @@
 ### hi <a href="https://www.animatedimages.org/cat-waving-1645.htm"><img src="https://www.animatedimages.org/data/media/1645/animated-waving-image-0077.gif" border="0" alt="animated-waving-image-0077" /></a> , i am <img src="https://img.icons8.com/color/48/000000/c.png"/><img src="https://img.icons8.com/color/48/000000/s.png"/> Nice to meet you. Welcome to my GitHub! 😄
 #welcome_to_my_world🏡
 
-I’m interested in Full Stack Developer, DSA and almost every other thing involving logic and code. 💜
+I’m interested in Full Stack Development, DSA and almost every other thing involving logic and code. 💜
 
 i am crazy about coding, problem solving and team collaboration.🌱
 
